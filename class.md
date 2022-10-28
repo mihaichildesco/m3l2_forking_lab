@@ -1,0 +1,3 @@
+Mihai Childesco
+Bucuresti/Romania
+JavaScript
